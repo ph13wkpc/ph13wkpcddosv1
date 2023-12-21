@@ -1,8 +1,3 @@
-# TOOL PHUCPC DDosV1 :
-TOOL SIÊU VIP , CÂN NHIỀU SITE
-FACEBOOK : https://www.facebook.com/phucwindartist.official/
-Instagram : https://www.instagram.com/phucwindartist.official/
-TikTok : https://www.tiktok.com/@phucwindartist.official/
-Twitter : https://twitter.com/ANONVNTEAM
-BẢN QUYỀN TOOL THUỘC VỀ PHUC PC ©!
+# TOOL PH13WKPC DDosV2 :
+TOOL SIÊU VIP , CÂN NHIỀU SITE BẢN QUYỀN TOOL THUỘC VỀ ANONS.PH13WKPC ©! 
 Nghiêm cấm mọi hành vi sao chép biến thành của mình!
